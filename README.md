@@ -1,1 +1,5 @@
-# TP1_RMI[TP1_RMI.webm](https://github.com/N0ur-edd1ne/TP1_RMI/assets/117684844/1d8fda12-375c-487b-94e6-cfed6640a083)
+
+https://github.com/N0ur-edd1ne/TP1_RMI/assets/117684844/7c56f9a2-e9db-4d45-a318-82ba79309344
+# TP1_RMI
+
+Uploading TP1_RMI.mp4…
